@@ -1,4 +1,3 @@
-<img src="https://media.licdn.com/dms/image/C5603AQER5MDxRab0XQ/profile-displayphoto-shrink_800_800/0/1517493377567?e=1719446400&v=beta&t=c6M602h6jkBhpaN6dYYy9dtKV3T6L2jmAZNAiW57qao"  style="width: 250px" />  
 
 - ### I'm Konstantin!  
   
