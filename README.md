@@ -2,22 +2,6 @@
 - ### I'm Konstantin!  
   
 
-- 🔭Accounting and Auditing education (+ a several of courses of the Radio Physics Faculty)  
-  
-
-- 2005-2010 worked in an IT company as an engineer of the technical department and a administrator SQL databases, the company has up to 200 people 
-  
-
-- 2006 - currently, freelance commercial and Stock photographer . (I have been professionally engaged in photography for a total of 19 years, my stock portfolio is more than 30,000 photos)  
-  
-
-- ⚡ Fun fact:  I ride a road bike, marathons.  10000km + per season
-<br/>  
-
-
-
-
-
 
 
 
